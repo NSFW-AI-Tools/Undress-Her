@@ -2,7 +2,7 @@
 
 Undress Her is a cutting-edge AI tool designed to remove clothing from images, enabling users to create realistic representations of undressed figures. 
 
-[Discover Undress Her Tools](https://undress-ai.link/)
+[Discover Undress Her Tools](https://undress-ai.link/product/undress-her)
 
 Utilizing advanced deep learning algorithms, this application leverages neural networks to accurately detect and eliminate clothing from AI-generated images, providing an engaging and user-friendly experience.
 
